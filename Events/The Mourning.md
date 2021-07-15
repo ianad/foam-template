@@ -1,0 +1,7 @@
+# The Mourning
+
+ The **Day of Mourning** was the event in which the nation of [[Cyre]] was destroyed in a magical holocaust of unknown origins on 20 [Olarune](https://eberron.fandom.com/wiki/Olarune "Olarune"), [994 YK](https://eberron.fandom.com/wiki/994_YK "994 YK").
+ 
+ This event marked the beginning of the end of the [Last War](https://eberron.fandom.com/wiki/Last_War "Last War"). Over a million Cyrans perished, including Cyre's Queen [Dannel ir'Wynarn](https://eberron.fandom.com/wiki/Dannel_ir%27Wynarn "Dannel ir'Wynarn"), along with military personnel from [Breland](https://eberron.fandom.com/wiki/Breland "Breland"), [Thrane](https://eberron.fandom.com/wiki/Thrane "Thrane"), and [Karrnath](https://eberron.fandom.com/wiki/Karrnath "Karrnath") within the nation's borders.[[1]](https://eberron.fandom.com/wiki/Day_of_Mourning#cite_note-Rising109-1)
+
+The cause and origin of the Mourning is unknown. There are conflicting eyewitness accounts that include a blinding light on the Saerun Road, or mists originating from the capitol of [Metrol](https://eberron.fandom.com/wiki/Metrol "Metrol").[[2]](https://eberron.fandom.com/wiki/Day_of_Mourning#cite_note-Rising14-2) However, by the end of the day the mists had advanced to form a wall around what once was [[Cyre]]. The land was subsequently named the [[Mournland]].
