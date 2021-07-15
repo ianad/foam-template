@@ -1,8 +1,8 @@
 # Getting Started
 
 Quick obsidian test:
-- [[characters/gonzo]]
-- [[organizations/korranberg chronicle]]
+- [[gonzo]]
+- [[korranberg-chronicle]]
 
 Welcome to your new foam workspace, let's get you started.
 
